@@ -9,3 +9,7 @@ the set up proscess was easy to set up i dont think anyone should have done it w
 i feel like anyone could do it exspecialy because how easy the instructions are to follow.
 # September 20, 2024
 free week
+# October 15, 2024
+being able to code is good for many diffrent job postions. say u want to work in a IT then u would need to know how to code to do your job. if u went into a health pathway and u knew how to code then u would be able to help with tech things. when your coding u need to colabrate with ur partners on coding for likes projects and stuff.
+# October 25, 2024
+the election would need a computer to process all the votes and also make a count and if it goes down then the votes would be all messed up and they would have to redo the voting 
