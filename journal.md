@@ -13,3 +13,10 @@ free week
 being able to code is good for many diffrent job postions. say u want to work in a IT then u would need to know how to code to do your job. if u went into a health pathway and u knew how to code then u would be able to help with tech things. when your coding u need to colabrate with ur partners on coding for likes projects and stuff.
 # October 25, 2024
 the election would need a computer to process all the votes and also make a count and if it goes down then the votes would be all messed up and they would have to redo the voting 
+# January 8, 2025
+last semester was cool and it was really easy to do things and i liked it because its laid back and really relaxed. this semester i want to be more locked in on doing work and have better grades. i want to get certified in somthing i just dont know what i want to do right now 
+# January 13, 2025
+the shift in the tech industry using AI skills over people it presents both opportunities and chanllenges like aotumating task or potential job displacement
+# January 22, 2025
+it effcts the government because it could be a pontential safty risk like they could get all there information then they could use it against them and take over the world but i feel like tik tok is a huge problem and once they buy it then they are gonna become super rich.
+
