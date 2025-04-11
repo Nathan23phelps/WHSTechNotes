@@ -19,4 +19,8 @@ last semester was cool and it was really easy to do things and i liked it becaus
 the shift in the tech industry using AI skills over people it presents both opportunities and chanllenges like aotumating task or potential job displacement
 # January 22, 2025
 it effcts the government because it could be a pontential safty risk like they could get all there information then they could use it against them and take over the world but i feel like tik tok is a huge problem and once they buy it then they are gonna become super rich.
+# March 31, 2025
+i am feeling like these testing weeks are gonna be easy. the most stressful part of school is all the work that i have missing. i like to relax when school gets stressful it allows me to think about school. my one goal is to start on varsity since im on var already.
+# April 7, 2025 
+The most useful feature of an AI tutor for me would be its ability to provide immediate, detailed feedback on my practice attempts. Instead of just telling me whether I got an answer right or wrong, the AI could explain the reasoning behind the correct solution and identify any conceptual misunderstandings I might have. This would allow me to learn from my mistakes more effectively and build a stronger understanding of the material. Honestly, I think I would definitely use an AI tutor if it were available. The personalized support and instant feedback would be invaluable in helping me prepare for the STAAR and other important tests.
 
